@@ -1,6 +1,8 @@
-<img width="485" height="399" alt="Screenshot 2026-04-29 at 11 14 50 AM" src="https://github.com/user-attachments/assets/e4e6ec94-54e0-4b01-8a22-5dcb7ec18a7b" />
+
 
 wip im too lazy rn ill make this pretty later
 
 
 SIGN MY STRAWPAGE PLEASE IM BEGGING I NEED MORE GIMMICKS 
+
+<img width="700" height="400" alt="Screenshot 2026-05-01 at 10 47 07 AM" src="https://github.com/user-attachments/assets/3294a28e-d387-4292-991f-c5c08c14cdd6" />
